@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with smart Polymarket Module | slippage-control + leverage-trading, the #1 module. Includes slippage-control and leverage-trading for a smoother
 
 
 
